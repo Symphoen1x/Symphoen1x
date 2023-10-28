@@ -5,7 +5,7 @@ Saya berasal dari progam studi **Pendidikan Teknik Informatika dan Komputer**.<b
 Machine learning dan AI adalah bidang yang saya minati.<br>
 Saya adalah seorang pemula dari Machine Learning Enginer.<br>
 Saya memiliki banyak sertifikat yang berasal dari pelatihan online seperti [Dicoding](https://www.dicoding.com/academies/my), [MySql](https://myskill.id/e-learning), dan [Coursea](https://www.coursera.org/my-learning?myLearningTab=IN_PROGRESS).<br>
-Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/public-profile/settings?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_self_edit_contact-info%3Be5qRqNa5QBGKAXmdZor4yg%3D%3D) teman-teman.
+Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/public-profile/settings?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_self_edit_contact-info%3Be5qRqNa5QBGKAXmdZor4yg%3D%3D) saya teman-teman.<br>
 
 ### Github Statistic
 <p align="left">
